@@ -1,1 +1,0 @@
-# CS02.-Course-Summary.-IPZ-24-11d.-Buhai-Maksym
